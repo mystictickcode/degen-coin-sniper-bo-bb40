@@ -1,4 +1,4 @@
-# 
+# quantitative Scanner for degen coin sniper bot | proxy-transactions & volume-spike-detection offers the most advanced degen coin sniper bot, with proxy-transactions and
 
 
 
